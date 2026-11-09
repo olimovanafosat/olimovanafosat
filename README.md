@@ -1,4 +1,4 @@
-###  I'm Olimova Nafosat Jamolbek qizi 👋
+###  I'm Olimova Nafosat 👋
 
 <p align="center">
   
